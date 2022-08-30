@@ -15,6 +15,7 @@ Objetivos específicos:
 
 # Capítulo XVIII
 
+![image](https://user-images.githubusercontent.com/105675868/187494924-6fdb38e7-38a5-46b9-b85c-6f191328a976.png)
 
 # Resolución de ejercicios
 
